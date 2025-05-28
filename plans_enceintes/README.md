@@ -1,1 +1,1 @@
-Des plans pubkic, et du made-in @ludocbault
+Des plans publics, et du made-in @ludocbault
